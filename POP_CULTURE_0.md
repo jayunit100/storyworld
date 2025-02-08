@@ -52,11 +52,34 @@ On the heavier side,
   - Slayer,
   - Anthrax. 
 
+
 One of those thrash titans, Metallica, scored one of history’s best-selling heavy albums with their self-titled Black Album.
-At the same time, rap became mainstream thanks to groups like Run-D.M.C. and Public Enemy, who eventually teamed with Anthrax to blend rap and rock on “Bring the Noise.” Comics grew grimmer with works like Batman: The Dark Knight Returns, offering a dystopian take on the Caped Crusader, and Watchmen, illustrated by Dave Gibbons, which dissected the very notion of heroism.
-Children’s pop culture thrived: My Little Pony delighted kids with pastel-colored adventures, and Pee-wee’s Playhouse, hosted by Paul Reubens, offered surreal humor. Sesame Street, launched in 1969, continued educating youngsters with letters and numbers. Meanwhile, the big screen introduced the unstoppable cyborg of The Terminator (1984), played by Arnold Schwarzenegger. Traditional rock bands flourished too: AC/DC blasted forward with Back in Black, and Queen’s hits remained undeniable. In video games, the Atari 2600 was the first commercially successful home console, setting the stage for Nintendo’s NES to dominate with Super Mario Bros., The Legend of Zelda, and Metroid.
-Pop’s female voices grew more powerful. Janet Jackson shook the industry with her album Rhythm Nation, Cyndi Lauper declared “Girls Just Wanna Have Fun,” and Paula Abdul—a onetime Laker Girl and choreographer—topped charts with “Straight Up.” This era also saw new wave and synthpop from Duran Duran, Depeche Mode, and Pet Shop Boys, revealing futuristic sonic landscapes. 
-We love British Pop.  Sometimes we wonder how such a small country made so many amazing bands.
+
+At the same time, rap became mainstream thanks to groups like Run-D.M.C. and Public Enemy, who eventually teamed with Anthrax to blend rap and rock on “Bring the Noise.” C
+
+omics grew grimmer with works like Batman: The Dark Knight Returns.
+
+Children’s pop culture thrived: 
+
+- My Little Pony delighted kids with pastel-colored adventures, and Pee-wee’s Playhouse, hosted by Paul Reubens, offered surreal humor.
+- Sesame Street, launched in 1969, continued educating youngsters with letters and numbers.
+
+Meanwhile, the big screen  unleashed America's quonteseential cyborg: The Terminator (1984) - Arnold Schwarzenegger. 
+
+Traditional rock bands flourished too: 
+
+- AC/DC blasted forward with Back in Black, and Queen’s hits remained undeniable.
+
+In video games, the Atari 2600 was the first commercially successful home console, setting the stage for Nintendo’s NES to dominate with Super Mario Bros., The Legend of Zelda, and Metroid.
+
+Pop’s female voices grew more powerful. Janet Jackson shook the industry with her album Rhythm Nation, Cyndi Lauper declared “Girls Just Wanna Have Fun,”.
+
+Paula Abdul — a onetime Laker Girl and choreographer—topped charts with “Straight Up.” 
+
+This era also saw new wave and synthpop from Duran Duran, Depeche Mode, and Pet Shop Boys, revealing futuristic sonic landscapes. 
+
+We love British Pop.  
+Sometimes we wonder how such a small country made so many amazing bands.
 
 ## The 1990s: Grunge, Alternative, & Pop-Punk
 
