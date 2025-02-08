@@ -93,8 +93,10 @@ And just a generation earlier, ex-Runaway Lita Ford had cracked the ‘80s rock 
 On the opposite side of the musical spectrum, the later 90s saw a revival of high-quality british and american, progressive pop bands. 
 
 - The Spice Girls ruled global pop, championing “Girl Power” with hits like “Wannabe” and “Say You’ll Be There.”   
-- The new wave of British pop overshadowed the gloom of grunge. 
-
+- The new wave of British pop overshadowed the gloom of grunge.
+- Sonic Youth (who formed in 1981) in New York  became pioneers of noise rock, post-punk, and alternative rock, became
+much more significant in the 1990s (kool thing, and 100% both making it to the sacred mountain of MTV airplay)!
+- Elastica formed in 1992 in London and was part of the Britpop movement, heavily influenced by post-punk and new wave (including bands like Wire and The Stranglers).
 Meanwhile,  fellow Brits Oasis dropped “Wonderwall,” a defining anthem of ‘90s Britpop.
 
 Hip-hop and R&B soared to massive popularity behind artists like Tupac, Notorious B.I.G., Wu-Tang Clan, Mariah Carey, and Whitney Houston. 
