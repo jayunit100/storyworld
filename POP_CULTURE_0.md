@@ -119,12 +119,20 @@ StoryWorld considers Procol Harum ~ the creators of the epic "A Whiter Shade of 
 
 ## Rap-Rock Fusion & Internet Culture’s Downside
 
-Shortly before the millennium, “rap-rock” gained traction. Aerosmith and Run-D.M.C. famously collaborated on “Walk This Way,” and the Beastie Boys deftly infused rap attitudes with rock grit. Soon, “nu metal” arrived via Korn, Limp Bizkit, and Linkin Park, mixing down-tuned riffs with rapped verses. Rage Against the Machine roared with political outcries, fueled by Tom Morello’s inventive guitar wizardry.
-Yet as the internet age dawned, music experienced fragmentation. Cheap downloads and social media “click-and-skip” culture frayed once-cohesive fan communities. Casual listeners hopped from track to track, neglecting the deep bond once formed by collecting albums, reading liner notes, and following entire tours. The rapid pace diluted the communal energy once essential to music scenes.
+Shortly before the millennium, “rap-rock” gained traction. Aerosmith and Run-D.M.C. famously collaborated on “Walk This Way,” and the Beastie Boys deftly infused rap attitudes with rock grit. Soon, “nu metal” arrived via Korn, Limp Bizkit, and Linkin Park, mixing down-tuned riffs with rapped verses. 
+
+Rage Against the Machine roared with political outcries, fueled by Tom Morello’s inventive guitar wizardry.
+
+Yet as the internet age dawned, music experienced fragmentation. Cheap downloads and social media “click-and-skip” culture frayed once-cohesive fan communities. 
+
+Casual listeners hopped from track to track, neglecting the deep bond once formed by collecting albums, reading liner notes, and following entire tours. The rapid pace diluted the communal energy once essential to music scenes.
 
 ## The Post Cell Phone Apocalypse & The Return of Real Bands
 
-Despite digital oversaturation, a new wave of music culture is brewing—one that values real instruments, basement jam sessions, and full-length conceptual storytelling. In this potential future, smartphones lose their grip, and earnest fans reignite the social currency of local shows, dedicated fandom, and the raw power of a live guitar amp. This renewed fervor, echoing the rebellious spirit behind punk, metal, grunge, and rap-rock, could spark a new golden age of band-driven pop culture—honest, unfiltered, and forging communities that resonate deeply across generations.
+Despite digital oversaturation, a new wave of music culture is brewing—one that values real instruments, basement jam sessions, and full-length conceptual storytelling. 
+
+In this future, smartphones lose their grip, and earnest fans reignite the social currency of local shows, dedicated fandom, and the raw power of a live guitar amp. This renewed fervor, echoing the rebellious spirit behind punk, metal, grunge, and rap-rock, could spark a new golden age of band-driven pop culture—honest, unfiltered, and forging communities that resonate deeply across generations.
+
 Emerging rock bands that are bring the raw energy of real music back to the USA:
 - Greta Van Fleet – Known for their throwback rock sound, soaring vocals, and emphasis on live performance.
 - King Gizzard & The Lizard Wizard – Prolific, genre-bending psych-rockers who keep the DIY spirit alive with numerous albums and energetic shows.
