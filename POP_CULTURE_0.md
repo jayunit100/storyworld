@@ -6,9 +6,30 @@ Open to PRs but they might be rejected.
 
 Take our pop culture training exam back to your table, and win a free pop-culture artifact!!!
 
-StoryWorld grew up in the era of gritty rock n’ roll and intense storytelling through movies that you watched with 100s of other people, at the same time.  We went to awe-inspiring raves and deafining punk rock and metal shows.  We  don’t scroll while listening to music.  We don’t listen to low quality streamed audio.  And we read the comics before watching the movies.  We invite you to do the same.
-Pop culture weaves together music, film, comics, and games into the tapestry of history. Each decade’s art is shaped by political movements, economic realities, and societal shifts. From the hard-hitting protest songs of the ‘70s to the neon-splashed metal mania and gritty comics of the ‘80s—and onward to the boundary-pushing alternative rock and hip-hop surges of the ‘90s—pop culture reflects the rebellion, innovation, and storytelling that resonate across generations.
-Use this guide to sharpen your trivia skills. From the disco floors of the ‘70s to the power chords of the ‘80s, rap-rock hybrids, and grunge angst of the ‘90s, pop culture is a continuous story of rebellion, expression, and innovation. Now test yourself and see if you can ace all the questions—there might be a pop culture artifact waiting for you at the end!
+StoryWorld grew up in the era of gritty rock n’ roll and intense storytelling through movies that you watched with 100s of other people, at the same time.  
+
+We went to awe-inspiring raves and deafining punk rock and metal shows.  
+
+We  don’t scroll while listening to music.  
+
+We don’t listen to low quality streamed audio.  
+
+And we read the comics before watching the movies. 
+
+We invite you to do the same.
+
+# This is V0 of our Canonized Pop Culture Story
+
+Pop culture weaves together music, film, comics, and games into the tapestry of history. 
+Each decade’s art is shaped by political movements, economic realities, and societal shifts.
+
+From the hard-hitting protest songs of the ‘70s to the neon-splashed metal mania and gritty comics of the ‘80s—and onward to the boundary-pushing alternative rock and hip-hop surges of the ‘90s—pop culture reflects the rebellion, innovation, and storytelling that resonate across generations.
+
+In the 70s we invented the modern power chord.
+We perfected it in the 80s, and made it progressive.
+And in the 90s, the breadth of available music and high quality, commited fans peaked.
+
+We aim to bring back the era of deep commitment to pop culture in america : mostly with regard to comic books, and rock n roll.
 
 ## The 1970s: Rebellion & Escapism
 
