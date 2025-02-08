@@ -1,7 +1,3 @@
-This is my first take on my opinionated pop culture README.  
-I haven't integrated science fiction, and comic books into it yet.  
-Open to PRs but they might be rejected.
-
 # StoryWorld’s Essential Pop Culture Guide (and Pop Quiz Quest)
 
 Take our pop culture training exam back to your table, and win a free pop-culture artifact!!!
